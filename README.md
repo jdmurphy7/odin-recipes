@@ -1,1 +1,1 @@
-i will come back to this and add more detail once i have done more of the project
+this is two recipes on how to make stuff that are linked by an index page
